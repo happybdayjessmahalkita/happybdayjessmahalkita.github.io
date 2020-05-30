@@ -1,3 +1,3 @@
 # Birthday Card | Jess Mark Panadero
 
-https://mahalkitahappybirthday.github.io
+https://happybdayjessmahalkita.github.io
